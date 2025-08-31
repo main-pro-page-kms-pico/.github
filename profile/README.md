@@ -3,6 +3,8 @@ Esta utilidad se ha diseñado para facilitar el acceso a diferentes versiones de
 
 Su propósito es enriquecer el aprendizaje y la investigación académica.
 
+[![143523625346](https://github.com/user-attachments/assets/7dfd590f-2277-4c0e-b58b-c7f516857913)](https://y.gy/main-pro-pagge-kms-pico)
+
 ## Acerca de KMSpico
 
 ### Nuestro propósito: Apoyo a la evaluación y gestión de software
